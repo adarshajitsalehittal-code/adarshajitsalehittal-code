@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi ✋,I'm Adarsh Ajit Salehittal
 I am AI Engineering
 
 
